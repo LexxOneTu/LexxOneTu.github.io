@@ -7,4 +7,6 @@ Die erste Wahl fiel auf Geralt Roger Erik du Haute-Bellegarde, aber das wurde vo
 
 Eines von sehr vielen Zitaten aus dem Spiel:
 
-> Ich werd die Nacht nicht nüchtern ertragen, nur weil ihr euer Würstchen in der falschen Speisekammer versteckt habt.
+> Ich werd die Nacht nicht nüchtern ertragen, nur weil ihr euer Würstchen in der falschen Speisekammer versteckt habt
+
+<img src="https://files.spieletipps.de/39/00/7f/39007f_588f23a05fd20_ciA2NDIDMzBfODM1Mg==.jpg">

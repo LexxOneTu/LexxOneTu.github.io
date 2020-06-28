@@ -5,4 +5,8 @@ Da er ein Findelkind war, dachte Geralt lange Zeit, er habe seinen Vornamen von 
 Weiterhin stammt Geralt trotz seines Beinamens nicht wirklich aus Riva. Aber junge Hexer wurden von ihrem Mentor Vesemir dazu angehalten, sich einen Nachnamen zuzulegen, damit deren Namen vertrauenswürdiger klingen. 
 Die erste Wahl fiel auf Geralt Roger Erik du Haute-Bellegarde, aber das wurde von Vesemir als albern und zu protzig zurückgewiesen. Im Roman "Feuertaufe" erzählt Geralt, dass er sich diesen Namen zulegen wollte.
 
+Eines von sehr vielen Zitaten aus dem Spiel:
+
+> Ich werd die Nacht nicht nüchtern ertragen, nur weil ihr euer Würstchen in der falschen Speisekammer versteckt habt
+
 <img src="https://files.spieletipps.de/39/00/7f/39007f_588f23a05fd20_ciA2NDIDMzBfODM1Mg==.jpg">

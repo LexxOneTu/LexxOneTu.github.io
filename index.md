@@ -4,3 +4,5 @@ Geralt von Riva (Geralt z Rivii auf Polnisch) ist der Protagonist der Witcher Ro
 Da er ein Findelkind war, dachte Geralt lange Zeit, er habe seinen Vornamen von Vesemir erhalten. In der Kurzgeschichte "Etwas mehr" erfährt er jedoch von seiner Mutter, dass dem nicht so war. 
 Weiterhin stammt Geralt trotz seines Beinamens nicht wirklich aus Riva. Aber junge Hexer wurden von ihrem Mentor Vesemir dazu angehalten, sich einen Nachnamen zuzulegen, damit deren Namen vertrauenswürdiger klingen. 
 Die erste Wahl fiel auf Geralt Roger Erik du Haute-Bellegarde, aber das wurde von Vesemir als albern und zu protzig zurückgewiesen. Im Roman "Feuertaufe" erzählt Geralt, dass er sich diesen Namen zulegen wollte.
+
+<img src="https://files.spieletipps.de/39/00/7f/39007f_588f23a05fd20_ciA2NDIDMzBfODM1Mg==.jpg">
